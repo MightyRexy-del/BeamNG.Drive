@@ -1,0 +1,1 @@
+Getting beamng these days is pretty hard, especially in our todays economy. But do you know you can get it for free, well version 0.24 or 0.25, wait what if this version I don't know, but you can get beamng for free without spending a single penny.Try it now.
